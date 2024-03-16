@@ -1,12 +1,3 @@
-# Microsoft Office LTSC Professional Plus 2021
-Microsoft Office 2021 Activator 🤫
+# Photoshop with crack v24 2024
+http://103.145.76.250/Data/2024/ADOBE%20COLLECTION%202022-2023/
 
-- Update all Office apps(optional)
-- Close all Office apps(Word, PowerPoint, Excel,..)
-- Connect to the Internet
-- Double-click office2021.bat
-
-# Supported Product:
-- Microsoft Office Professional Plus 2021
-
-### Enjoy Office Professional Plus 2021 with full activation!✨
